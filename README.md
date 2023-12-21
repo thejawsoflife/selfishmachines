@@ -1,5 +1,6 @@
-### :3
-
+### " so, go ahead baby, run your mouth! " 
+#### ab me : https://rentry.co/vitalityz
+#### guestbook : 
 <!--
 **vitalityz/vitalityz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
