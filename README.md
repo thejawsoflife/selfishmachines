@@ -1,6 +1,8 @@
 ###  🪼 ୨୧  " maybe, i'm just good at assuming ! " ⊹・ 
 #### 💤 ★ ab me : https://rentry.co/vitalityz 
 #### 🐟 ★   guestbook : https://vitalityz.123guestbook.com/
+#
+![alt text](https://i.pinimg.com/564x/50/8b/d6/508bd6c7f5557e99027ce5b5f7fce195.jpg)
 <!--
 **vitalityz/vitalityz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
