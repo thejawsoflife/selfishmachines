@@ -2,7 +2,7 @@
 #### 🐑 ★ ab me : https://rentry.co/vitalityz 
 #### 🏮 ★   guestbook : https://vitalityz.123guestbook.com/
 #
-![alt text](https://media.discordapp.net/attachments/1171330603149439029/1198142827176136754/image.png?ex=65e2be76&is=65d04976&hm=844cd1fedfc1004ea4eec263677773476ae5f036634cc277f7311c68460df42b&=&format=webp&quality=lossless&width=1440&height=556)
+![alt text]([https://i.ibb.co/Qk7f5z6/image.png])
 <!--
 **vitalityz/vitalityz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
