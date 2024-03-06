@@ -2,7 +2,7 @@
 #### 🐑 ★ ab me : https://rentry.co/vitalityz 
 #### 🏮 ★   guestbook : https://vitalityz.123guestbook.com/
 #
-![alt text]([https://i.ibb.co/Qk7f5z6/image.png]())
+![alt text](https://i.ibb.co/Qk7f5z6/image.png)
 <!--
 **vitalityz/vitalityz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
