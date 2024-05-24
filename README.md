@@ -1,4 +1,4 @@
-###  🚨 ୨୧  " maybe, i'm just good at assuming ! " ⊹・ 
+###  🚨 ୨୧  " how dare you think this time's enough !? " ⊹・ 
 #### 🐑 ★ ab me : https://rentry.co/vitalityz 
 #### 🏮 ★   guestbook : https://vitalityz.123guestbook.com/
 #
