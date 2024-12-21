@@ -1,4 +1,4 @@
-###  🧿 ୨୧  " how dare you think this time's enough !? " ⊹・ 
+###  🧿 ୨୧  " let's fake it by pretending to be crazy ! " ⊹・ 
 ####  🪼 ★ visit me? : https://rentry.co/vitalityz 
 #### 🌀 ★   guestbook : https://vitalityz.123guestbook.com/
 #
