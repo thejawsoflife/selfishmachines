@@ -1,6 +1,6 @@
-###  🚨 ୨୧  " how dare you think this time's enough !? " ⊹・ 
-#### 🐑 ★ ab me : https://rentry.co/vitalityz 
-#### 🏮 ★   guestbook : https://vitalityz.123guestbook.com/
+###  🧿 ୨୧  " how dare you think this time's enough !? " ⊹・ 
+####  🪼 ★ visit me? : https://rentry.co/vitalityz 
+#### 🌀 ★   guestbook : https://vitalityz.123guestbook.com/
 #
 ![alt text](https://i.pinimg.com/736x/fb/33/ec/fb33ecc71d2dff095305f0735a0c80b4.jpg)
 <!--
