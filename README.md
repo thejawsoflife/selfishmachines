@@ -1,6 +1,6 @@
-###  💢 ୨୧  " let's fake it by pretending to be crazy ! " ⊹・ 
-####  📛 ★ visit me? : https://rentry.co/vitalityz 
-#### ♨️ ★   guestbook : https://vitalityz.123guestbook.com/
+###  💢 ୨୧  " kick your mind open like a punk rock show . " ⊹・ 
+####  📛 ★ your end is decided here : https://rentry.co/vitalityz 
+#### ♨️ ★   ?????? : 𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃 
 #  `　　⠀　₊　　　˙　　⠀⠀✦⠀　　　˙　　₊　　⠀　`
 ![alt text](https://i.pinimg.com/736x/df/8b/a4/df8ba4c50dfd21a4007b2e9c2cbce512.jpg)
 <!--
