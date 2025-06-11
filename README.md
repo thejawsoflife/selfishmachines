@@ -1,6 +1,6 @@
 ###  💢 ୨୧  " kick your mind open like a punk rock show . " ⊹・ 
 ####  📛 ★ your end is decided here : https://rentry.co/homesweetholes
-#### ♨️ ★   ?????? : 𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃 
+#### ♨️ ★   UNLOCKED : 𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃 your letters . . https://cyberlinked.atabook.org/?page=1 
 #  `　　⠀　₊　　　˙　　⠀⠀✦⠀　　　˙　　₊　　⠀　`
 ![alt text](https://i.pinimg.com/736x/df/8b/a4/df8ba4c50dfd21a4007b2e9c2cbce512.jpg)
 <!--
